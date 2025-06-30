@@ -1,1 +1,1 @@
-Beginning with the Fall 2025 term, Prof. Matthias Schlichting will be the instructor-of-record for BIOL 2302 Lab to accompany BIOL 2301. Please direct any questions regarding opportunities to serve as an instructor to him. 
+Beginning with the Fall 2025 term, Prof. Matthias Schlichting will be the instructor-of-record for BIOL 2302 Lab to accompany BIOL 2301. Please direct any questions regarding opportunities to serve as an instructor to him (schlichting.m@northeastern.edu). 
